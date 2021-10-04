@@ -1,0 +1,1 @@
+# K-nominalnemu-stylu-predvolebnych-statusov
